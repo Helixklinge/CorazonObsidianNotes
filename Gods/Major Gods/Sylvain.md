@@ -1,1 +1,1 @@
-God of Growth and nature in general
+God of Growth and nature in general, usually considered to be laid back
