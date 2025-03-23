@@ -1,0 +1,1 @@
+Upon the site of the Battle where the Heroes finally took down the Oppressor God the Drakenspire was built and the city around it was founded.

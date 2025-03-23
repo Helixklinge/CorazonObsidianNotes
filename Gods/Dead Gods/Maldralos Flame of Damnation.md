@@ -1,0 +1,1 @@
+The Oppressor Dragon God Maldralos, often also referred to as the Flame of Damnation used to rule over the world with an iron fist. Literally manifested into the world as a massive dragon and was killed at the place that is now known as the Drakenspire freeing the peoples of the world.

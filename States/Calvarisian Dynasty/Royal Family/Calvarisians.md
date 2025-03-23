@@ -1,0 +1,1 @@
+The royal Family of the Dynasty has been around the longest out of all the nobles of the continent and is directly related to the dragonslayers of the Dawn of Mankind. Generally considered to be generous and kind rulers who willingly gave up power to improve the lives of their subjects.

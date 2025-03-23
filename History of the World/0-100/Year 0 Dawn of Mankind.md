@@ -1,0 +1,1 @@
+The Dawn of Mankind marks the day once the Species of the World finally broke free of their Shackles. It's the day when they finally took down their oppressor God, Maldralos Flame of Damnation. Upon that day, finally, they all reclaimed their freedom and once again could walk freely. 

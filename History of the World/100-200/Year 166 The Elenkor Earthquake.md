@@ -1,0 +1,1 @@
+A massive Earthquake hit the city of Elenkor in the Year 167 and nearly annihilated the entire city. The reconstruction of said city cost the Kingdom a majority of its resources and foiled the plans of a second invasion of Ithos, trying to take advantage of their weakness after the war.

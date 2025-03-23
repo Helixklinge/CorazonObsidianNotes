@@ -1,0 +1,1 @@
+Due to neither side making relevant progress in the war, both decided to sign a ceasefire which relatively quickly ended in a white peace.

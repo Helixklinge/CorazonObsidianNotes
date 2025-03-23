@@ -1,0 +1,1 @@
+As one of the main Heroes that took down Maldralos, many people started following her lead and soon it turned out that they decided she'd be a great ruler and thus the Dynasty was formed.

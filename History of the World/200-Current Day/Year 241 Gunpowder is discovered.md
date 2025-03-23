@@ -1,0 +1,1 @@
+In the year 241 the very first gunpowder is discovered leading to the creation of extremely simple firearms. They are very much still in their infancy, incredibly rare and usually just as unreliable. However, this will surely redefine warfare as it is known currently.

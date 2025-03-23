@@ -1,0 +1,1 @@
+Kaeloris's ruling family finally decided to crown their ruler as a king and expand further southwards. This wasn't exactly well received by the either the Dynasty or the Union, because of the expansionist threat of Kaelendell. However, the first few decades remained peaceful.

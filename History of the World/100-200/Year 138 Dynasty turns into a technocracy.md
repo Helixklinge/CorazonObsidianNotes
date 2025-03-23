@@ -1,0 +1,1 @@
+The Dynasty willingly hands over the reins of the country to a technocratic merit based system of advisor councils, which over the last few decades had already more and more been integrated into the decision making of the country.

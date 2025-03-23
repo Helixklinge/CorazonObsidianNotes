@@ -1,0 +1,1 @@
+The year 204 can be considered as the start of the Great Westward expansion with all 3 nations expanding westwards into the dangerous wilderness of the Elderglen and the unexplored territories.

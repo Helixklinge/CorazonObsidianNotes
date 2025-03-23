@@ -1,0 +1,1 @@
+In the years prior to 102 Kaelendell and Ithos experienced several border disputes over resource heavy areas and in 102 this escalated into a full blown war between the both of them. Neither side could make any proper progress however as the mountain range splitting them made it difficult to attack. Thus the war dragged out.

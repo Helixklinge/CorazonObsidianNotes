@@ -1,0 +1,1 @@
+God of War, known as a Protector of the Soldiers

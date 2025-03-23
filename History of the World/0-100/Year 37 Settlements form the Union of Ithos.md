@@ -1,0 +1,1 @@
+Several Settlements in the South of the Continent decided to form a union to strengthen each other.

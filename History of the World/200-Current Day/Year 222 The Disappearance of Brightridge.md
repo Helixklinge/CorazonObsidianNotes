@@ -1,0 +1,1 @@
+The settlement town of Brightridge alongside all of its inhabitants seemingly disappeared without a trace left, marking one of the biggest setbacks of the westward Expansion.
