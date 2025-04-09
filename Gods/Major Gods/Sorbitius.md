@@ -1,5 +1,7 @@
 God of Enjoyment, Love, Passion and Compassion
 
-often represented via drink
+Usually represented with some sort of drink, he's considered to be the epitome of festivities.
 
-test test
+Supported mortals against Maldralos for there was nothing more opposite to his values than its rule. 
+
+This is how he gained Major Status.

@@ -3,3 +3,5 @@ Goddess of the deceptive and shrewd using [[Trickery]] to get their ways. Also p
 Often also revered by gamblers hoping to receive her blessings of luck.
 
 This is why the symbol often associated with her is the quill and ink, symbolizing the smart usage of words and writing.
+
+Largest follower group are all manner of charlatans
